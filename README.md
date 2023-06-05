@@ -1,1 +1,1 @@
-👋 Hi, I’m @omrpatel  
+👋 Hi, I’m **Om Patel**  
